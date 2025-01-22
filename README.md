@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sophia!
+- 👋 Hi, I’m Sophia! You can call me Zoha. It's my nickname 😊
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning programming.
 - 😄 Pronouns: She
